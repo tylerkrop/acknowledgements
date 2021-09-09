@@ -20,12 +20,14 @@ I would also like to thank my therapists and mentors who shall not be named to p
 
 - Adam B.
 - Apeksha A.
+- Brandon K.
 - Brett L.
 - Brian H.
 - Chris D.
 - Daniel B.
 - David Y.
 - Ed G.
+- Marianna S.
 - Mauro O.
 - Michael R.
 - Myron S.
